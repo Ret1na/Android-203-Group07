@@ -2,6 +2,6 @@
 ### Thành viên
 * Phạm Quốc Vương - 
 * Thái Mai Khánh Vy - 
-* Trần Đức Anh - 20120251
+* Trần Đức Anh - 
 * Nguyễn Đức Tài - 
 * Trần Duy Tân - 
