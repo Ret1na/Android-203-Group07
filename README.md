@@ -2,6 +2,6 @@
 ### Thành viên
 * Phạm Quốc Vương - 
 * Thái Mai Khánh Vy - 
-* Trần Đức Anh - 
+* Trần Đức Anh dep trai vcc- 
 * Nguyễn Đức Tài - 
 * Trần Duy Tân - 
